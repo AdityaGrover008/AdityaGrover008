@@ -1,4 +1,4 @@
-<img align="right" width="300" src="https://gifdb.com/images/thumbnail/three-spiderman-cast-xtv2ifpw363jr7it.gif">
+<img align="right" width="200" src="https://gifdb.com/images/thumbnail/three-spiderman-cast-xtv2ifpw363jr7it.gif">
 
 # 👋 Hey, I'm Aditya
 
