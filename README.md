@@ -1,4 +1,4 @@
-<img align="right" width="300" src="https://gifdb.com/spiderman">
+<img align="right" width="300" src="https://wallpapers.com/spiderman-pictures">
 
 # 👋 Hey, I'm Aditya
 
